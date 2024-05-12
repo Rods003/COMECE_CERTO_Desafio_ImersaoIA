@@ -19,7 +19,5 @@ Com o Conti ao seu lado, você terá acesso a:
 
 Com o Conti ao seu lado, você terá a companhia perfeita para desbravar o mundo da burocracia e abrir sua empresa com sucesso no Brasil.
 
-**Acesse o site da COMECE CERTO agora mesmo e conheça o Conti!**
-
 **COMECE CERTO: o seu caminho para o sucesso empresarial começa aqui!**
 
