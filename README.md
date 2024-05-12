@@ -8,8 +8,6 @@ Com o Conti ao seu lado, você terá acesso a:
 * **Informações completas e atualizadas** sobre o processo de abertura de empresa no Brasil;
 * **Orientação personalizada** para cada etapa do processo, desde a escolha do tipo jurídico ideal até o registro da sua empresa;
 * **Respostas para todas as suas dúvidas**, de forma clara, objetiva e descomplicada;
-* **Acesso a ferramentas e modelos** que facilitarão a sua vida, como checklists, planilhas e documentos prontos para usar;
-* **Um canal direto com especialistas** em abertura de empresas para tirar dúvidas e receber suporte personalizado.
 
 **Mas o que torna o Conti realmente especial?**
 
